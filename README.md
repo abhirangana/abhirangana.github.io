@@ -1,2 +1,0 @@
-# abhirangana.github.io
-homepage
